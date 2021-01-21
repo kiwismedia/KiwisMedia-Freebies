@@ -1,6 +1,6 @@
 ![Kiwismedia Freebies](https://miro.medium.com/max/875/1*6IuYQDfeLl_6TGhzc3DM9g.png)
 
-# KiwisMedia Freebies — How to earn one for you.
+# [KiwisMedia](http://kiwismedia.com/) Freebies — How to earn one for you.
 
 A guide that will help you earn KiwisMedia Freebies not for free but by doing something that would add value to your portfolio. To be very honest that is only something we want. Having a profile that speaks for yourself.
 
