@@ -7,15 +7,15 @@ A guide that will help you earn KiwisMedia Freebies not for free but by doing so
 
 ## 🎖 KiwisMedia Premium
 
-Complete your profile on KiwisMedia, if your profile gets approved by our mentors. You will get a free KiwisMedia upgrade for 1 year. You can start by clicking here
+Complete your profile on KiwisMedia, if your profile gets approved by our mentors. You will get a free KiwisMedia upgrade for 1 year. You can start by [clicking here](http://kiwismedia.com/)
 
 ## 📚 Free Book
 
 <b>Option 1:</b> If you are someone who is passionate about content writing. Here’s how you can earn KiwisMedia freebies. Write 5 blog post for us, you can claim a free book from us. You will receive both soft copy + hard copy of that book.
-You can take reference of articles from KiwisMedia Insights.<br>
+You can take reference of articles from [KiwisMedia Insights](https://kiwismedia.com/insight).<br>
 
 <b>Option 2:</b> If you are someone who is passionate about design. Here’s how you can earn KiwisMedia freebies. If you can design 6 carousels for us. Once the design is approved, you can claim a free book from us. You will receive both soft copy + hard copy of that book.
-You can take reference of carousel from KiwisMedia Byte.
+You can take reference of carousel from [KiwisMedia Byte](https://kiwismedia.com/byte).
 
 ## 👕 Free Tshirt
 
